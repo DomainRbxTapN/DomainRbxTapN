@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DomainRbxTapN
+- I'm owner of DomainR best free script.
+- https://discord.gg/BBxU6ny7KU
